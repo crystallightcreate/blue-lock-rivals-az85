@@ -1,4 +1,4 @@
-# 
+# Experience blue lock rivals like never before with blue lock rivals rare Scripts, the #1 Script. Includes invisibility and infinite resources for
 
 
 
